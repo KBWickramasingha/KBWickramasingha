@@ -1,4 +1,4 @@
-# HI... I'M K B WICKRAMASINGHA
+# HI... I'm K B WICKRAMASINGHA
 
 Mechatronics Engineer | Robotics & Intelligent Systems | Embedded Systems | Control Systems
 
