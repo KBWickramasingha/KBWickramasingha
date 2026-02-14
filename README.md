@@ -1,4 +1,4 @@
-# WICKRAMASINGHA MUDIYANSELAGE KEERTHI BANDARA WICKRAMASINGHA
+# HI... I'M K B WICKRAMASINGHA
 
 Mechatronics Engineer | Robotics & Intelligent Systems | Embedded Systems | Control Systems
 
